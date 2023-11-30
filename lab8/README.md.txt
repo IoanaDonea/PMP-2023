@@ -1,0 +1,1 @@
+Am fost prezenta la laborator marti dar am uitat sa trimit tema. Acum mi-am amintit si am trimis-o in caz ca mai poate fi luata in considerare.
